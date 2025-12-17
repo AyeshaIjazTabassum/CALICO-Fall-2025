@@ -7,6 +7,9 @@
 
 <img width="1892" height="632" alt="image" src="https://github.com/user-attachments/assets/cf5aea6c-ef6c-476f-8d67-b169a6ecaf7f" />
 
-# 📑 A proof of completion
+
+
+
+## 📑 A proof of completion
 
 <img width="1920" height="877" alt="CALICO-Fall-2025-Certificate" src="https://github.com/user-attachments/assets/ef85cc6b-d795-4126-9f07-2ac77c1c0b8b" />

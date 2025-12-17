@@ -1,1 +1,1 @@
-CALICO Coding Competition Fall 2025
+# CALICO Coding Competition Fall 2025

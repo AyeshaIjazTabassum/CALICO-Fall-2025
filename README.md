@@ -3,7 +3,7 @@
 
 <img width="1895" height="642" alt="image" src="https://github.com/user-attachments/assets/f3559926-7013-4421-bf55-b5102981ed3b" /></br>
 
-🎖️ Got **_Silver Medal_** by ranking **_164th_** in all over Pakistan.
+🎖️ Lined up in **_Silver Medal_** by ranking **_164th_** in all over Pakistan.
 
 <img width="1892" height="632" alt="image" src="https://github.com/user-attachments/assets/cf5aea6c-ef6c-476f-8d67-b169a6ecaf7f" />
 </br></br>

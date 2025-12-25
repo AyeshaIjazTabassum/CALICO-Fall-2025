@@ -1,9 +1,9 @@
 # CALICO Fall '25 - Coding Competition
-🏆 Ranked **_542nd_** in all over the world.
+🏆 Ranked **_380th_** in all over the world.
 
 <img width="1895" height="642" alt="image" src="https://github.com/user-attachments/assets/f3559926-7013-4421-bf55-b5102981ed3b" /></br>
 
-🎖️ Lined up in **_Silver Medal_** by ranking **_164th_** in all over Pakistan.
+🎖️ Lined up in **_Silver Medal_** by ranking **_62nd_** in all over Pakistan.
 
 <img width="1892" height="632" alt="image" src="https://github.com/user-attachments/assets/cf5aea6c-ef6c-476f-8d67-b169a6ecaf7f" />
 </br></br>
